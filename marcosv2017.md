@@ -1,2 +1,2 @@
 Trabalhar como desenvolvedor Sistema
-Porto Seguro
+Empresa que atua com atendimento final ao cliente, com suporte para tirar duvidas de parceiros.
